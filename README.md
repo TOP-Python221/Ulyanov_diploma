@@ -1,1 +1,0 @@
-# Ulyanov_diploma
